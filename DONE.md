@@ -1,1 +1,2 @@
 - Joffrey Baratheon (empoisonné par quelqu'un d'autre que Aryas)
+- Meryn Trant (éliminé par Arya alors qu'il attaquait Syrio Forel)
